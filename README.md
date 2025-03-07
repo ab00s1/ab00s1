@@ -32,7 +32,7 @@ He/Him
 
 ## ⚡ Fun fact:
 - I love solving coding challenges and building creative UI designs! 🎨  
-- Cricket enthusiast & tech explorer! 🏏  
+- Football enthusiast & tech explorer! ⚽  
 - Always open to learning and sharing knowledge!  
 
 ---
